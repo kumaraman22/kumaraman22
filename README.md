@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Aman kumar
-- 👀 I’m interested in programming as it will be my passion after some year.
+- 👀 I’m interested in programming
 - 🌱 I’m currently learning to explore my tech skills as like as every engineer concern.
 - 💞️ I’m not currently looking to collaborate with anybody.
 - 📫 You can reach me through my email - kumaraman47969@gmail.com
