@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working on Product Development.<br>👯 I'm learning how I can provide better Product Values to users.<br>🤝 I used to write articles at https://aman-soni.hashnode.dev/<br>💬 Ask me about Product Development and Design Stuffs.<br>⚡ I Worked with the Start-Ups and planning to build one.<br>✍️ I am Content Creator on https://www.youtube.com/@aman_soni067
+🔭 I’m currently working on Product Development.<br>👯 I'm learning how I can provide better Product Values to users.<br>🤝 I used to write articles at https://aman-soni.hashnode.dev/<br>💬 Ask me about Product Development and Design Stuffs.<br>⚡ I Worked with the Start-Ups and planning to build one.<br>✍️ I am Content Creator on https://www.youtube.com
 
 
 ## 🌐 Socials:
